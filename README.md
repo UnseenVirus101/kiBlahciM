@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kiBlahciM
-- 👀 I’m interested in gamę development
+- 👀 I’m interested in game development
 - 🌱 I’m currently learning (Math,English and Informatic) 
 - 💞️ I’m looking to collaborate on Roblox Moderation platform
 - 📫 How to reach me 58+ 510740509 only sms me
